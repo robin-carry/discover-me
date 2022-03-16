@@ -7,7 +7,7 @@
 2. Robin Sharma: [The True Purpose of Life](https://www.youtube.com/watch?v=CVRDXoAFcRo) (4:52)
  
 **Your Habits / Behaviors:**
-1. HBR Article on Starting with small habits to achieve big goals
+1. [HBR Article on Starting with small habits to achieve big goals](../documents/To%20Achieve%20Big%20Goals%2C%20Start%20with%20Small%20Habits.PDF)
 2. Bob Proctor: Change your habits, change your life (7:31)
  
 **Your Limiting Beliefs:**
